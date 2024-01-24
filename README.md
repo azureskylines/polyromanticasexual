@@ -1,5 +1,11 @@
-### hi
+# hi
 
-hi, i'm just a random person on the internet!
+i code stuff
 
-i know java, kotlin, and lua, but i'm learning other stuff too!
+## you can pay me to code stuff
+
+do that ^
+
+i'm broke i'll code anything for a bit of money
+
+contact me: `@gaytransfem` on discord
