@@ -8,6 +8,6 @@ do that ^
 
 i'm broke i'll code anything for a bit of money
 
-contact me: `@nationalinsecurityagency` on discord (might be out of date, check https://deviance.lol/bio for latest)
+contact me: `@raineloveslily` on discord (might be out of date, check https://deviance.lol/bio for latest)
 
 you can email me too but like... who uses email it's 2024
