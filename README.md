@@ -8,6 +8,6 @@ do that ^
 
 i'm broke i'll code anything for a bit of money
 
-contact me: `@kaylaloveslily` on discord
+contact me: `@polyromantic` on discord (old acc termed)
 
 you can email me too but like... who uses email it's 2024
